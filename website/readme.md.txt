@@ -1,0 +1,1 @@
+ide nem tudom mit kell irni de ha veletlen egyszer ezz megmutatom valahol akkor ez nagon gyorsan ki kell töröl
